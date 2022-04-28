@@ -15,4 +15,4 @@ I chose this topic because without knowing the history about something there wil
 GOALS
 *To examine the development of publishing Caribbean literature.
 *To investigate the development in the marketing Caribbean literature.
-*To outline the author's journey into making and publishing books.
+*To outline the author's journeys into making and publishing books.
